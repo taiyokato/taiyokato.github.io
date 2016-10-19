@@ -10,7 +10,9 @@ Twitter: [@taiyokato](https://twitter.com/taiyokato)
 
 Keio University SFC (2015 ~ 2019)
 
-2016 Q2 武田研
+2016 Y1S2 武田研
+2016 Y2S1 武田研
+
 
 
 
